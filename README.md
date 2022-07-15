@@ -1,2 +1,2 @@
 
-### Disocrd: SNIAPA#6963
+### Discord: SNIAPA#6963
